@@ -1,1 +1,0 @@
-# yazilimapp.github.io
